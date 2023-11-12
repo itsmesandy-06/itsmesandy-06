@@ -5,7 +5,7 @@
 - 📫 How to reach me:
   
 - Instagram:         https://www.instagram.com/itsmesandy_06/
-- LinkedIn:          linkedin.com/in/santhosh-sivakumar-5b8b24291/
+- LinkedIn:          https://linkedin.com/in/santhosh-sivakumar-5b8b24291/
 - Email:             2005.santhoshsivakumar@gmail.com
 - Alternate Email:   santhosh06072005@gmail.com
 
